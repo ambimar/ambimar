@@ -1,5 +1,5 @@
 # 💫 About Me:
-Soy una dibujante en digital, actualmente adquiriendo conocimiento de programación.<br>
+Soy dibujante en digital, actualmente adquiriendo conocimiento de programación.<br>
 
 
 ## 🌐 Socials:
