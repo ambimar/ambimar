@@ -1,4 +1,4 @@
-# Sobre mi^uwu:
+# Sobre mi ^v^:
 Soy dibujante en digital, actualmente adquiriendo conocimiento de programación.<br>
 
 ## Redes sociales:
